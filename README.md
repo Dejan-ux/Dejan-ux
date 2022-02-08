@@ -7,5 +7,5 @@
 - 💬 Ask me about anything NBA related.
 - 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/dylanwu101/)
 - 😄 Pronouns: He/His
-- ⚡ Fun fact: a big Tottenham Hotspur fan!
+- ⚡ Fun fact: I'm a big Tottenham Hotspur fan!
 
